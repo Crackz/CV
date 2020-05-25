@@ -1,0 +1,1 @@
+# [View CV](https://crackz.github.io/CV) :neckbeard:
